@@ -1,4 +1,4 @@
-### Hi, I'm Jolly.Liu. 👋
+### Hi, I'm Hermione X. 👋
 
 - 🔭 I’m now working for myself.
 - 🌱 I’m a pupil of meteorology. 
