@@ -1,4 +1,4 @@
-### Hi, I'm Oolong. 👋
+### Hi, I'm HermioneX. 👋
 
 - 🤔 I’m currently coding in Python.
 - 💬 Be free to ask me about anything [here](https://github.com/HermioneX/HermioneX/issues).
